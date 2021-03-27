@@ -1,0 +1,1 @@
+# Urz-dzenia_Teleinformatyki_Lab1-2
